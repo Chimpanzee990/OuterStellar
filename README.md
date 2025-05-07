@@ -1,2 +1,2 @@
 # OuterStellar
-An internet proxy with online chat
+eat cheese like mever before
